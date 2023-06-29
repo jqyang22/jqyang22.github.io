@@ -1,1 +1,1 @@
-Jiaqi Yang's homepage: https://jqyang22.github.io/
+Jiaqi Yang's homepage: https://jqyang.github.io/
